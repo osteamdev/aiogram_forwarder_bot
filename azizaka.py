@@ -1,0 +1,1 @@
+# Pythonni o'rganishda davom eting!!!
